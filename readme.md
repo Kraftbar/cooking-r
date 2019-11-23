@@ -6,10 +6,21 @@ Molasses (brown sugar?// byproduct of sugar cane processing)
 
 ## asian
 ### sauce
-siracha     
+#### soy
+Hoisin sauce     
+Dou ban Jiang     
 black soya sauce     
 light soya sauce     
 Shaoxing wine     
 chinkiang vinegar     
+#### chili
+Siracha     
+chili oil     
+chili sauce (chili crisp) - lao gan ma    
 ### spice
-chinkiang vinegar     
+Star anise     
+cinnamon     
+Sichuan pepper     
+Fennel seeds      
+Clove (nellik)       
+###
